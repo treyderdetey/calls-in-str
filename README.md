@@ -6,4 +6,4 @@ calls-in-str
 
 Приятного пользования!
 
-Создатели tg:@bigboy322&@bebebuq.
+Создатели tg:@bigboy322&@bebebuq
