@@ -7,4 +7,5 @@
 Приятного пользования!
 
 Создатели tg:@bigboy322&@bebebuq
-![photo_2024-04-27_00-25-35](https://github.com/treyderdetey/calls-in-str/assets/132045589/3810bcad-26b7-4bd2-a428-69dfde01ec26)
+
+![photo_2024-04-27_00-14-54](https://github.com/treyderdetey/calls-in-str/assets/132045589/ba434bd3-5836-4d3f-bbec-75559843fec5)
